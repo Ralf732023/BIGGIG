@@ -1,3 +1,4 @@
+
 ## Самый лучши сайт по продаже смарт устройств
 ### Приемущества работать с нами
 - Гарантия качества
@@ -5,5 +6,5 @@
 - Низние цены
 - Вежливый персонал
 - Трейд ин(возмоность замены вашего старого аппарата на новый)
-  
-  ![image.png] (https://youfriends.ru/public/promo_cache/chanel_logo_UCQ18THOcZ8nIP-A3ZCqqZwA.png)
+
+ ![image](https://user-images.githubusercontent.com/130753599/234016680-68be9fce-a144-492c-a89b-fca80cf0853c.png)

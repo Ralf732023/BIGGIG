@@ -6,4 +6,4 @@
 - Вежливый персонал
 - Трейд ин(возмоность замены вашего старого аппарата на новый)
   
-  ![image.png] (https://youfriends.ru/public/promo_cache/chanel_logo_UCQ18THOcZ8nIP-A3ZCqqZwA.png)
+  ![image](https://user-images.githubusercontent.com/130753599/234018727-7028c9c3-0c97-40ab-8d07-e0e2c28871c9.png) 
